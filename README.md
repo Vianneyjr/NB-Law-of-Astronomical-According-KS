@@ -1,0 +1,1 @@
+# NB-Law-of-Astronomical-According-KS
